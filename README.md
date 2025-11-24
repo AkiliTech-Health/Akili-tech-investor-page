@@ -1,1 +1,0 @@
-# Akili-tech-investor-page
